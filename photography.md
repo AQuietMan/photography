@@ -34,40 +34,40 @@ are a little better known to me. There are indeed two videos about Vivian Maier.
 * [Vivian Maier (Updated)](https://youtu.be/weNskA7_0VU?si=dk9t-atwPa9b0A4A)
 * [William Eugene Smith](https://youtu.be/mZginWQFWHI?si=MXmlbMXSFjmFyRVg)
 
-* Sergio Larrain
-* Fred Herzog
-* Robert Doisneau
-* Raghu Rai
-* Bruce Davidson
-* Candida Höfer
-* Harry Gruyaert
-* Joel Meyerowitz
-* Steve McCurry
-* Michael Kenna
-* Emil Gataullin
-* Carlos Perez Siquier
-* William Klein
-* Francesca Woodman
-* William Eggleston
-* Barry Tallis
-* Joan Colom
-* Chema Madoz
-* Garry Winogrand
-* Hendrik Kerstens
-* Rodney Smith
-* Rene Burri
-* Abbas Attar
-* Susan Meiselas
-* Jesus Linares
-* Clark Little
-* Masashi Wakui
-* Paolo Pettigiani
-* Josef Koudelka
-* Todo Hido
-* Joel Sternfeld
-* Frank Machalowski
-* Andreas Gursky
-* Michael Wolf
+* [[Sergio Larrain](https://youtu.be/RQofRiTVrnE?si=fk8mYb4MqvpEUDNI)
+* [Fred Herzog](https://youtu.be/UVn8nvS0ZUg?si=ecB0M2yaw6q8bp28)
+* [Robert Doisneau](https://youtu.be/vT8dU4WyHcs?si=zIzFQSX87ur6LV0X)
+* [Raghu Rai](https://youtu.be/EYiG5acA69A?si=HjTsQMqRipVGock3)
+* [Bruce Davidson](https://youtu.be/3T_1qPm1k3c?si=rW6ECWdqCA4aVfDz)
+* [Candida Höfer](https://youtu.be/x-HBKqiQTGE?si=YviF9vay8D9C52TR)
+* [Harry Gruyaert](https://youtu.be/0nvxmkIz7V8?si=tHfFQYeTbDNoFwNs)
+* [Joel Meyerowitz](https://youtu.be/K0Jea64ADoM?si=jZ_aHtCVetFhDSQl)
+* [Steve McCurry](https://youtu.be/yE7z1RG95Z0?si=BrTOgP8E0lGmeTY3)
+* [Michael Kenna](https://youtu.be/3WDjO4xeXq0?si=VJB_rW0-XZWun6al)
+* [Emil Gataullin](https://youtu.be/gHy_iK1tN_Y?si=hn9FZ9JJI7mmgIJU)
+* [Carlos Perez Siquier](https://youtu.be/X2XmDZrJJ8k?si=nRacJhnpnCY55sYU)
+* [William Klein](https://youtu.be/BcZq3nIN-vU?si=B6Bk23D0BQHIZppq)
+* [Francesca Woodman](https://youtu.be/7omyUEexCPM?si=1WAohzP82sTGlGsI)
+* [William Eggleston](https://youtu.be/TPhQymLUyQY?si=6KGfyZB_h60YEhtv)
+* [Barry Talis](https://youtu.be/PuwKHs-nt3s?si=LyRqNiEwwAwNGeut)
+* [Joan Colom](https://youtu.be/nSoOJfTwNBA?si=3GnBehpD_PWADFpZ)
+* [Chema Madoz](https://youtu.be/lwUMEm_fSsQ?si=Zuy5PpZ7nH8JuJ88)
+* [Garry Winogrand (Updated)](https://youtu.be/fUDY-fZ7UVk?si=LMVWi0s3B6VTvGC4)
+* [Hendrik Kerstens](https://youtu.be/8gOvk-Zy7tc?si=FDT7ozVrVEXJJ3qA)
+* [Rodney Smith](https://youtu.be/8pqrcrNH-0Q?si=HovRZj38BPJjSuDI)
+* [Rene Burri](https://youtu.be/gfym_l6S6Hs?si=yn9mLvrswjxPdjrp)
+* [Abbas Attar](https://youtu.be/m7eqbqsZ4tY?si=XWL-DTxLchWMlAYB)
+* [Susan Meiselas](https://youtu.be/XEE5WxAZY4M?si=TPLLJ-YvuiooHjl-)
+* [Jesus Linares](https://youtu.be/owFWjJvlprc?si=6AownxqynxNzs3Ah)
+* [Clark Little](https://youtu.be/6vRcnOI1h4g?si=cnxRUxhzwqE7wHiO)
+* [Masashi Wakui](https://youtu.be/zjUO_PLEn1Q?si=85xrZoSGmVUt3ElZ)
+* [Paolo Pettigiani](https://youtu.be/mti-d0wU8i8?si=JX6AwyRL-X4BRVhj)
+* [Josef Koudelka](https://youtu.be/1vkiHR0G4u4?si=u_2lnReH_WbDL9I8)
+* [Todd Hido](https://youtu.be/7wfPHgIH6mk?si=KP6FU9tNS46OjIsD)
+* [Joel Sternfeld](https://youtu.be/X5fjRRF4dYo?si=LRqZBWLFNNb2FzT8)
+* [Frank Machalowski](https://youtu.be/YhToBCjNzIw?si=3z5SKsJm289q7rja)
+* [Andreas Gursky](https://youtu.be/t5U3zAnTfC8?si=2R-XvM1SP9KORjr1)
+* [Michael Wolf](https://youtu.be/Pvn3U5S2hKs?si=hddGeQ5brqjL12Ge)
 
 ## Others
 
